@@ -8,4 +8,4 @@
 
 ### 📫 Contact me via:
 - EMAIL: letu7182@gmail.com
-- Twitter: [http](https://x.com/TuLe_2024)
+- Twitter: [https://x.com/TuLe_2024]
