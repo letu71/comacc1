@@ -5,6 +5,7 @@
 - 🔭 Passion in something ... (secret😊)
 - 💪 2025 Goals: Learning many things in Crypto
 - ⭐: Reading, listening, walking, Gamming, playing Guitar... and blade wind😅
+- ⭐: Running node...
 
 ### 📫 Contact me via:
 - EMAIL: letu7182@gmail.com
