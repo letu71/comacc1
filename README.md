@@ -6,7 +6,7 @@
 - 💪 2025 Goals: Learning many things in Crypto
 - ⭐: Reading, listening, walking, Gamming, playing Guitar... and blade wind😅
 - ⭐: Running node...
-- Leaning deploy smart contract
+- ⭐: Leaning deploy smart contract
 ### 📫 Contact me via:
 - EMAIL: letu7182@gmail.com
 - Twitter: [https://x.com/TuLe_2024]
