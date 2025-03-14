@@ -8,7 +8,7 @@
 - ⭐: Running node...
 - ⭐: Leaning deploy smart contract
 - ⭐: Leaning write code for crypto
-- ⭐: Leaning english
+- ⭐: Leaning english & others
 
 ### 📫 Contact me via:
 - EMAIL: letu7182@gmail.com
