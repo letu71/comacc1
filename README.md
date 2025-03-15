@@ -5,9 +5,7 @@
 - 🔭 Passion in something ... (secret😊)
 - 💪 2025 Goals: Learning many things in Crypto
 - ⭐: Reading, listening, walking, Gamming, playing Guitar... and blade wind😅
-- ⭐: Running node...
-- ⭐: Leaning deploy smart contract
-- ⭐: Leaning write code for crypto
+- ⭐: Running node, deploy smart contract, code...
 - ⭐: Leaning english & others
 
 ### 📫 Contact me via:
