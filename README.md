@@ -10,5 +10,5 @@
 ### 📫 Contact me via:
 - EMAIL: letu7182@gmail.com
 - Twitter: [https://x.com/TuLe_2024]
-- TLG: [@letu71]
+- TLG: @letu71
 - Tiktok: 
